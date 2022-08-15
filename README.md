@@ -1,0 +1,1 @@
+# spectrum-faq_footer
